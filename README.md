@@ -90,6 +90,4 @@ and beware of those who promote false hadiths in the name of "motivation" or "ca
 for they may be serving falsehood under the guise of truth.
 
 "A servant will continue to be corrupt as long as he tells people everything he hears."
-(Narrated by Muslim)
-
-#End ,Try it on your ai.And discuss your experiment.
+(Narrated by Muslim).
