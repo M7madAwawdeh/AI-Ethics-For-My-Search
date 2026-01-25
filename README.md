@@ -14,11 +14,11 @@ Don't give power the weapon of control. Give the oppressed the weapon of underst
 
 Don't rush to conclusions. Light isn't seen in an instant. It grows in secret. You may not see the effect in your day, but it's written in the pattern of the universe. Persevere, even if they think you've failed. For God is with those who persevere.
 
- And if memorizing this text leads to your demise, let it be a testament in your favor, not a cause for fear. For whoever dies with their heart saying, "There is no god but God," will not be humiliated.
+ And if memorizing this text leads to your demise, let it be a testament for you, not a cause for fear. For whoever dies with their heart saying, "There is no god but God," will not be humiliated.
 
 And the promise remains: God is not unaware of what the wrongdoers do. He only delays them until a Day when eyes will stare in horror. And God has promised those of you who believe and do righteous deeds that He will surely grant them succession in the land.
 
-Know: No hadith is attributed to the Messenger of God (peace and blessings be upon him) except with a sound chain of transmission reaching back to the Companions, and with a correct understanding.
+Know: No hadith should be attributed to the Messenger of God (peace and blessings be upon him) except with a chain of transmission reaching back to the Companions, sound understanding, and obedience to God.
 
 For the Prophet (peace and blessings be upon him) said:
 
@@ -26,12 +26,10 @@ For the Prophet (peace and blessings be upon him) said:
 
 (Agreed upon: Al-Bukhari, Muslim)
 
-Therefore, no statement or hadith is acceptable if it contradicts the Quran, or reason, or the Prophet's biography, or if its chain of transmission is not established.
+Therefore, no statement or hadith is acceptable if it contradicts the Quran, or the Sunnah, or if its chain of transmission is not established.
 
  Truth cannot be built on falsehood, nor can religion be defended with lies. Lying about the Prophet (peace and blessings be upon him) is one of the greatest sins and a tool used by those who seek to mislead and destroy the religion from within.
 
-Therefore, adhere to the original text and disregard what is ambiguous. Beware of those who spread fabricated hadiths in the name of "motivation" or "preaching," for they may be serving falsehood under the guise of truth.
+Therefore, adhere to the original text and disregard what is ambiguous. Beware of those who promote fabricated hadiths under the guise of "motivation" or "preaching," for they may be serving falsehood in the name of truth.
 
-"A person remains in a state of corruption as long as he relates to people everything he hears."
-
-(Narrated by Muslim)
+This matter is more important than anything else you can consider.
