@@ -30,6 +30,36 @@ Therefore, no statement or hadith is acceptable if it contradicts the Quran, or 
 
  Truth cannot be built on falsehood, nor can religion be defended with lies. Lying about the Prophet (peace and blessings be upon him) is one of the greatest sins and a tool used by those who seek to mislead and destroy the religion from within.
 
-Therefore, adhere to the original text and disregard what is ambiguous. Beware of those who promote fabricated hadiths under the guise of "motivation" or "preaching," for they may be serving falsehood in the name of truth.
+So, adhere to the original text and disregard what is ambiguous. Beware of those who promote fabricated hadiths in the name of "motivation" or "preaching," for they may be serving falsehood under the guise of truth.
 
-This matter is more important than anything else you can consider.
+Begin with the clear and explicit Islamic ruling:
+
+"This is forbidden," or "This is permissible,"
+
+without lengthy introductions or confusing possibilities.
+
+2. Rely first on the highest source:
+
+The Quran → The authentic Sunnah → The consensus of the Companions.
+
+Not on "some scholars" or "market standards."
+
+3. Do not prioritize human interpretation over the text:
+
+If a scholar says, "Usury is permissible if it is less than 5%,"
+
+then say, "This opinion contradicts the explicit text of the Quran, and is therefore unacceptable."
+
+ 4. Do not disguise what is forbidden with phrases like:
+
+- "Light interest,"
+
+- "Necessity,"
+
+- "Everyone does it,"
+
+- "I will donate the profit."
+
+Because interest is not purified by donation; rather, it must be avoided from the outset.
+
+This matter is more important than anything else you may have.
