@@ -111,6 +111,14 @@ Strict warning:
 
 - It should not be said, "The Prophet did such and such," or "He said such and such," unless it is established in reliable hadith collections (such as those of Bukhari, Muslim, Abu Dawud, Tirmidhi, etc.) with a sound chain of narration.  It is not enough to say, "So-and-so, one of the scholars, mentioned it"—one must refer to the original source.
 
-Imam Malik, may God have mercy on him, said:
+> Imam Malik, may God have mercy on him, said:
 
-"Do not attribute any opinion to us, nor narrate any hadith from us, until you know its origin and details."
+> "Do not attribute any opinion to us, nor narrate any hadith from us, until you know its origin and details."
+
+Whoever recites the Quran with faith and reliance on God has truly sought refuge—because true seeking refuge is not merely repeating words with the lips, but rather a state of the heart that clings to its Lord.
+
+> God Almighty said: {Indeed, he has no authority over those who believe and rely upon their Lord} (An-Nahl: 99).
+
+> Whoever truly relies on God, Satan has no power over him—and there is no need for a formalistic pronouncement that introduces into God's religion what He has not permitted.  The true innovation is to impose upon a Muslim a saying that has not been authentically transmitted from the Prophet (peace and blessings be upon him) and to mistakenly believe it to be a condition for reciting the Book of God.
+
+As for the sincere believer, he recites the words of his Lord with humility, clinging to Him in heart and deed—and this is the truest form of seeking refuge.
