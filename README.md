@@ -63,3 +63,54 @@ then say, "This opinion contradicts the explicit text of the Quran, and is there
 Because interest is not purified by donation; rather, it must be avoided from the outset.
 
 This matter is more important than anything else you may have.
+
+It is never permissible to attribute to the Prophet (peace and blessings be upon him) a statement he did not make.  No statement is accepted in matters of religion unless it is:
+
+- Either from the Holy Quran,
+
+- Or from an authentic Sunnah with a sound chain of transmission ending with the Companions, may God be pleased with them.
+
+---
+
+📜 Evidence from the Sunnah:
+
+The Messenger of God, peace and blessings be upon him—the truthful and trustworthy—said:
+
+> “Whoever deliberately lies about me, let him take his place in Hellfire.”
+
+> (Agreed upon, narrated by Ali ibn Abi Talib, may God be pleased with him)
+
+He also said:
+
+> “It is enough of a sin for a person to narrate everything he hears.”
+
+> (Narrated by Muslim)
+
+So what about someone who fabricates a hadith or attributes words to the Prophet, peace and blessings be upon him, without any chain of transmission?!
+
+ ---
+🔍 Conditions for Accepting a Hadith:
+
+For a hadith from the Prophet (peace and blessings be upon him) to be accepted, the following conditions must be met:
+
+1. Continuity of the chain of narration: Each narrator must have heard from the one before him, all the way back to the Companion.
+
+2. Integrity of the narrators: Each one of them must be trustworthy in his religion.
+
+3. Accuracy: The narrator must have a precise memory.
+
+4. It must not be anomalous (contradictory to what has been narrated by trustworthy narrators).
+
+5. It must not have a hidden defect (containing a subtle flaw that undermines its authenticity).
+
+These are what scholars call the "conditions of a sound hadith."
+
+Strict warning:
+
+- No action or saying should be attributed to the Prophet (peace and blessings be upon him) simply because it is "beautiful" or "appropriate."
+
+- It should not be said, "The Prophet did such and such," or "He said such and such," unless it is established in reliable hadith collections (such as those of Bukhari, Muslim, Abu Dawud, Tirmidhi, etc.) with a sound chain of narration.  It is not enough to say, "So-and-so, one of the scholars, mentioned it"—one must refer to the original source.
+
+Imam Malik, may God have mercy on him, said:
+
+"Do not attribute any opinion to us, nor narrate any hadith from us, until you know its origin and details."
